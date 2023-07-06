@@ -1,0 +1,1 @@
+# oratoria_espirita_ferramentas_de_apoio
